@@ -9,7 +9,7 @@ Chất mực được phân phối đều để mang tới những đường k�
 Đường kẻ mắt khi dùng bút kẻ Lemonade nhanh chóng cố định hoàn toàn chỉ sau 3 phút. Không bị xê dịch, bị nhòe kể cả tiếp xúc với nước lạnh, mồ hôi hay thậm chí là khi cọ xát với dầu.
 Công nghệ kháng nước và kháng lem tuyệt đối, chống dầu và mồ hôi cực kỳ hiệu quả. Cho độ bền màu và lâu trôi đến 24h và giữ cho nét kẻ nguyên vẹn suốt cả ngày dài.
 2. Nhược điểm
-                                             bút kẻ mắt lemonade
+                                             
 Vì bút kẻ mắt Lemonade có khá nhiều chất dưỡng vậy nên sẽ khô hơi lâu một chút
  Sản phẩm sẽ được đánh giá là khó dùng với những ai mới bắt đầu tập kẻ mắt vì đầu bút dạng lưỡi trai đôi.
 Hướng dẫn cách dùng bút kẻ mắt Lemonade đúng chuẩn
@@ -19,14 +19,14 @@ Bước 3: Bắt đầu kẻ với những đường nét ngắn và mỏng, d�
 Bước 4: Sau khi kẻ mắt xong hãy giữ yên mắt cũng như không nhấp nháy mắt để mực kẻ được khô.
 Tạo điểm nhấn: Dùng bút kẻ mắt màu sáng để kẻ viền trong hoặc vẽ một đường nhỏ ở khóe mắt dưới.
 3. Các loại bút kẻ mắt Lemonade phổ biến
-                                                 bút kẻ mắt lemonade
+                                                 
 - Bút kẻ mắt dạng lỏng: Cho đường kẻ sắc nét, bền màu.
 - Bút kẻ mắt dạng gel: Kết cấu mềm mịn, dễ tán đều.
 - Bút kẻ mắt dạng bút chì: Dễ sử dụng, phù hợp với người mới bắt đầu.
 Lưu ý: Bạn nên lắc đều bút kẻ mắt Lemonade trước khi sử dụng để màu đen của sản phẩm ra đều màu hơn. Ngoài ra khi kẻ mắt cũng không nên chà xát lên vùng da mắt bởi rất dễ làm trầy xước da.
 Bảo quản: Bảo quản bút kẻ mắt ở nơi khô ráo, thoáng mát, tránh ánh nắng trực tiếp.
 Tẩy trang: Tẩy trang kỹ lưỡng bằng sản phẩm chuyên dụng để loại bỏ hoàn toàn lớp trang điểm.
-Fanpage: https://www.facebook.com/cosmesticmira?ref=embed_page
 
+Fanpage: https://www.facebook.com/cosmesticmira?ref=embed_page
 
 Website: https://miracosmetic.com/
